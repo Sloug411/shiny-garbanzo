@@ -1,6 +1,0 @@
----
-tags:
-  - Aspects
-  - Winter
-  - Unfinished
----
