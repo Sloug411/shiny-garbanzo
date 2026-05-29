@@ -1,7 +1,7 @@
 #Winter #Unfinished 
 
 ![[onthewhite.png]]
-**Description**: [[Solomon Husher]] writes, perhaps allegorically, of [[Winter]], and it's long doomed romance with the [[The Sun-in-Splendour|Sun]]. The Epigraph is "Sunset at Noon"
+**Description**: "[[Solomon Husher]] writes, perhaps allegorically, of [[Winter]], and it's long doomed romance with the [[The Sun-in-Splendour|Sun]]. The Epigraph is 'Sunset at Noon'"
 
 **Study**: "On closer investigation, the work seems to be a theory of aesthetics, or perhaps a set of warnings about the dangers of painting."
 
