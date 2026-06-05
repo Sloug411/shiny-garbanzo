@@ -1,4 +1,4 @@
-#Forge #Unfinished 
+#Forge #Unanalyzed 
 
 ![[burningofunburntgod.png]]
 **Description**: "Compiled by Hosty Tasmane from oral traditions in rural Persia"

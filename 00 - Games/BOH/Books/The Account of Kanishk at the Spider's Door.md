@@ -1,4 +1,4 @@
-#Edge #Unfinished 
+#Edge #Unanalyzed 
 
 ![[kanishspiderdoor.png]]
 **Description**: "Lok Kahuli, Kanishk's victim and lover, wrote this account, perhaps posthumously."
