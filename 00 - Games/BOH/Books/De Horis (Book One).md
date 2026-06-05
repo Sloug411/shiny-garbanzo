@@ -1,4 +1,4 @@
-#Moth #Unfinished 
+#Moth #Unanalyzed 
 
 ![[dehoris.png]]
 **Description**: "An occasionally coherent catalogue of the secret gods. This is an English translation of a volume dealing with the powers of the [[Wood]]."

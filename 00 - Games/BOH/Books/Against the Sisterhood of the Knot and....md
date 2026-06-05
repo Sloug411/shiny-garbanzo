@@ -1,4 +1,4 @@
-#SecretHistories #Unfinished 
+#SecretHistories #Unanalyzed 
 
 ![[againstsisterhood.png]]
 **Description**: "'Against the Sisterhood of the Knot and the Foulness of their Depraved Customs'. Hieronymus Pseudo-Hypnerotomachus wrote this furious screed about the sinister influence of the Sisterhood on his own Church of the Unconquered Sun."

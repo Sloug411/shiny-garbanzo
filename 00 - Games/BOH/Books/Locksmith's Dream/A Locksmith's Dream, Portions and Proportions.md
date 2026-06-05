@@ -1,7 +1,7 @@
-#Knock #Unfinished 
+#Knock #Unanalyzed 
 
 ![[locksmith2.png]]
-**Description**: "The second volume of Teresa Galmier's examination of the parallels in mystic dreams of artisans. The frontispiece has been slashed with a razor."
+**Description**: "The second volume of [[Teresa Galmier]]'s examination of the parallels in mystic dreams of artisans. The frontispiece has been slashed with a razor."
 
 **Study**: "In this volume, Galmier records fewer dreams, and explicates more of her own elaborate theories. 'We see this again and again: what is below can't escape what is above.
 
