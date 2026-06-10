@@ -1,1 +1,5 @@
-#Moth #Unfinished 
+#Moth #Unpolished
+
+![[mothwhands.png]]
+
+The Moth is a member of the [[Gods from Blood]] that overthrew the [[Gods from Stone]] in the [[Lithomachy]]. This [[Hours|Hour]]'s origin is quite hazy. Some say that The Moth was the first God from Blood, but others say that it is [[The Red Grail]]. Some even say that The Moth is the first Hour ever, as it is a part of every other Hour. The one thing that is known about the origin of the Moth is that it was originally worshiped by the [[Carapace Cross]], and was created when a group of hunters sacrificed birds to find a route out of the woods. The Moth currently takes residence within the [[Wood]] within [[Mansus]]. A key fact about The Moth is that it seems to have an obsession with the [[Glory]]. It's [[Principles|Principle]] is [[Moth (Aspect)|Moth]], most likely having the principle named after it.
