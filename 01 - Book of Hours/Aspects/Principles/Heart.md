@@ -1,3 +1,5 @@
-#Heart #Unfinished 
+#Heart #Unpolished 
 
-"The [Heart Relentless](The%20Thunderskin.md) beats to protect the skin of the world we understand. (The Heart is the [[Principles|Principle]] that continues and endures)"
+![[heart.png]]
+
+Heart is the [[Principles|Principle]] of healing and music. Heart has a particular connection with drums. [[Marsyas]], an important person within Heart lore, was turned into a drum after his death. [[The Thunderskin]], the most prominent Heart [[Hours|Hour]], even has its name based off drums.
