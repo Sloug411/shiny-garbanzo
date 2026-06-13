@@ -1,7 +1,8 @@
 #Forge #Unanalyzed 
 
-![[burningofunburntgod.png]]
-**Description**: "Compiled by Hosty Tasmane from oral traditions in rural Persia"
+![[burningunburnt.png]]
+
+**Description**: "Compiled by [[Hosty Tasmane]] from oral traditions in rural Persia"
 
 **Study**: "Tasmane hypothesizes [[The Forge of Days|a pre-Zoroastrian fire deity]], whose rites were the rites of smiths."
 

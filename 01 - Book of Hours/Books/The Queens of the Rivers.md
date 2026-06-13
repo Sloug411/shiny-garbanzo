@@ -1,6 +1,7 @@
-#SecretHistories #Scale
+#Scale
 
-![[queensofrivers.png]]
+![[queensrivers.png]]
+
 **Description**:"A surreal contemporary play by the enigmatic Monica Medina, in which the Queens of Rivers are murdered, and merged into one."
 
 **Study**: "The Queen of Vistula is poisoned. The Queen of Dniepnier chokes on a fish-hook. The Queen of Tagus is burned alive..."

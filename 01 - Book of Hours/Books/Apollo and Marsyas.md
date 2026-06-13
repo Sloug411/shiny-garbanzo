@@ -1,6 +1,7 @@
 #Heart 
 
 ![[apollomarsyasbook.png]]
+
 **Description**: "The libretto of a lost opera concerning the contest between [[Apollo]] and [[Marsyas]], and its tragic outcome. The librettist is identified only by their initials: RKNJL."
 
 **Study**: "In the original myth Marsyas lost a musical contest and got flayed by Apollo, who later regretted it. In this version Marsyas' skin has a further history..."

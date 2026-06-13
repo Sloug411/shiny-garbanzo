@@ -1,6 +1,6 @@
 #Moon #Unfinished 
 
-![[topalelady.png]]
+![[palelady.png]]
 
 **Description**: "A collection of [[Franklin Bancroft]]'s letters to [[Eva Dewulf]]."
 

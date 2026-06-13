@@ -1,6 +1,6 @@
 #Winter #Unanalyzed 
 
-![[oblationsiron.png]]
+![[oblationsiniron.png]]
 
 **Description**: "A Monster-hunting initiate of the [[Hours|Hour]] named [[The Colonel]], who identifies herself as '[[Little Sophia]]', records the exhibits she has rendered to the [[Worm Museum]] in the [[Mansus]]."
 

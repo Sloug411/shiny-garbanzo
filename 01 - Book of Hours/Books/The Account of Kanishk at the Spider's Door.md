@@ -1,6 +1,7 @@
-#Edge #Unanalyzed 
+#Moon #Unanalyzed 
 
-![[kanishspiderdoor.png]]
+![[kanishkaccount.png]]
+
 **Description**: "Lok Kahuli, Kanishk's victim and lover, wrote this account, perhaps posthumously."
 
 **Study**: "Kanishk sought to become a [[Name]]. In pursuit of that end, he made Lok Kahuli the vessel of his appetites, promising Lok that they would ascend together. At the [[Spider's Door]], he betrayed his lover..."
