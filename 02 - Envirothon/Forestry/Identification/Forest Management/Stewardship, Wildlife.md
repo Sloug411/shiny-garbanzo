@@ -1,0 +1,5 @@
+#Forestry #Study #Unfinished 
+
+The definition of stewardship as it pertains to forestry is the wise management and use of forest resources to ensure their health and productivity for years to come. Wildlife play a large role in the health of a forest, as they provide many roles which help plants. To correctly manage a forest, one must ensure the health and safety of the wildlife within the forest. To survive each animal species requires four basic elements, food, cover, water, and space. These elements collectively are that animal's habitat.
+
+**Food**: Wildlife require a variety of trees, shrubs, vines, and herbaceous plants to be able to survive. In general, plants that produce fleshy fruits, nuts, or seeds are valuable wildlife resources. Not all animals are herbivores, so there must also be a healthy population of other species and insects. A good way to facilitate this is by providing shelters for these species (eg. rocks, logs, and cavities).
