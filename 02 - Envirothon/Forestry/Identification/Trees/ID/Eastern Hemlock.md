@@ -2,7 +2,7 @@
 
 ![[easternhemlock.png|304]]![[hemlockbark.png|342]]
 
-**Characteristics**: The leaves of an Eastern Hemlock (AKA Tsuga Canadensis) are very ==flat, half an inch long==, dark green and glossy on the top, and light green with ==two white lines on the underside.== They are also evergreen. The twigs are very slender, but tough, and a yellowish-brown to a grayish-brown. The buds are egg-shaped and a reddish brown. The [[Fruit|fruit]] of an Eastern Hemlock are ==egg-shaped== and hang from the tips of twigs. The [[Trunk|bark]] is flaky on younger trees. It is colored a ==gray-brown to red-brown, and it is thick and grooved when older.== The Eastern Hemlock lives for a long time naturally.
+**Characteristics**: The leaves of an Eastern Hemlock (AKA Tsuga Canadensis) are very ==flat, half an inch long==, dark green and glossy on the top, and light green with ==two white lines on the underside.== They are also evergreen. The twigs are very slender, but tough, and a yellowish-brown to a grayish-brown. The buds are egg-shaped and a reddish brown. The [[Fruit|fruit]] of an Eastern Hemlock are ==egg-shaped== and hang from the tips of twigs. The [[Trunk|bark]] is flaky on younger trees. It is colored a ==gray-brown to red-brown, and it is thick and grooved when older.== The Eastern Hemlock lives for a long time naturally. The bark is grey brown or red brown, flakey when young, and thick when older.
 
 ![[hemlockcones.png|649]]
 
