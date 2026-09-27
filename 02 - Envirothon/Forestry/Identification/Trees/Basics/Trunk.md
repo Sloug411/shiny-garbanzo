@@ -2,7 +2,7 @@
 
 ![[trunkparts.png]]
 
-There are five main layers of a tree, the Outer Bark, Inner Bark, Cambium cell layer, Sapwood, and Heartwood.
+There are five main layers of a tree, the Outer [[Bark]], Inner Bark, Cambium cell layer, Sapwood, and Heartwood.
 
 **Outer Bark**: This section contains inactive cells which protect the Inner Bark from outside dangers. It also helps retain moisture levels during dry seasons.
 
